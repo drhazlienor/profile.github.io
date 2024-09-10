@@ -22,23 +22,23 @@ Work experience
 •	Mentee in Talent Grooming Programme (Latihan pra kepakaran) for Public Health Specialty attached to JKNK’s CDC Unit
 •	Serving under sectional operation at COVID-19 Task Force of Kelantan Crisis Preparedness & Response Center (CPRC) and Kelantan Vaccine Task Force
 
-*Medical Officer, Kelantan State Health Department, 03/2020-01/2021
+#### Medical Officer, Kelantan State Health Department, 03/2020-01/2021
 • Supervisor: Dr Noran Binti Hashim
 •	Mentee in Talent Grooming Programme (Latihan pra kepakaran) for Public Health Specialty attached to Vector and Maternal & Child Health unit.
 •	Serving under sectional operation at COVID-19 Task Force of Kelantan Crisis Preparedness & Response Center (CPRC)
 
-*Medical Officer, Kota Bharu District Health Office, 03/2019-03/2020
+#### Medical Officer, Kota Bharu District Health Office, 03/2019-03/2020
 • Supervisor: Dr Latifah Binti Dahlan 
 •	Mentee in Talent Grooming Programme (Latihan pra kepakaran) for Public Health Specialty 
 •	Medical officer in charge of community health screening for Kota Bharu district 
  
-*Medical Officer, Klinik Kesihatan Wakaf Che Yeh, 11/2016-2/2019
+#### Medical Officer, Klinik Kesihatan Wakaf Che Yeh, 11/2016-2/2019
 • Supervisor: Dr Nik Norashikin Nik Ab Rahman 
 •	Medical officer in charge of maternal and child health unit Klinik Kesihatan Wakaf Che Yeh 11/2016 – 01/2018 
 •	Medical officer in charge of mental health screening 01/2019 – 03/2019
 •	Team Leader of QAP Project 2018
 
-*Medical Officer, Klinik Kesihatan Bandar Gua Musang, 12/2014-11/2016
+#### Medical Officer, Klinik Kesihatan Bandar Gua Musang, 12/2014-11/2016
 • Supervisor:  Dr. Azura Mat Seman 
 •	Medical officer in charge of maternal and child health unit of Klinik Kesihatan Bandar Gua Musang 12/2014-11/2016 
 •	Supervisor of mental health clinic and visiting psychiatry clinic 
